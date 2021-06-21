@@ -1,0 +1,2 @@
+# Discord-Spammer
+Selamat mencoba:)
